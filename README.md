@@ -1,1 +1,2 @@
 Alex Wiedenhoeft
+wiedenha@oregonstate.edu
